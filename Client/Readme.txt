@@ -1,0 +1,1 @@
+This roblox place was only tested on pc. may be incompatible with other platforms
